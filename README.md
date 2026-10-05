@@ -13,4 +13,4 @@ Quantitative research, trading systems, and automation work, plus verified prop 
 
 ## Contact
 
-- Email: _to be added_
+- Email: ianrw5205@gmail.com
